@@ -6,3 +6,8 @@ Establish R&D
 
 Oversee STP Operations
 #STP
+
+
+Create and propose policies an process flow
+Enforce approved policies and process flow
+
