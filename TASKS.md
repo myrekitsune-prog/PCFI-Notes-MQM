@@ -8,3 +8,5 @@ NQD Roofing
 
 
 Complete and update [[Research]] items
+	Rommel and STP
+	Joseph and Jessie
