@@ -11,3 +11,5 @@ Complete and update [[Research]] items
 test this 
 
 
+Prompt for NQD report
+
