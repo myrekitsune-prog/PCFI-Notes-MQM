@@ -11,5 +11,6 @@ as soon as go signal poops, rent malera operator
 
 
 
-
+how to process MQM
+person in charge technical parameter
 
