@@ -22,4 +22,4 @@ compared for brand new pales in comparison
 settled 2nd hand, as it 
 malapit sa budget while satisfied the required umabot sa rooftop sa WWD (roof leak test purposes)
 
-Compared to brand new (Php1.4m bare unit without accessories), we settled in 2nd hand, dahil mas malapit sa budget while it satisfies the requirements for roof leak test of WWD (umabot hanggang roof top ng WWD).
+Compared to brand new (Php1.4m bare unit without accessories), we settled in 2nd hand dahil mas malapit sa budget while it satisfies the requirements for roof leak test of WWD (umabot hanggang roof top ng WWD).
